@@ -6,4 +6,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅅ `͈ 𓏼 )ა
-<img src="https://i.postimg.cc/kXF1vkds/Untitled638-20260620195940.png" width="100" align="center"> ⠀⠀ <img src="https://i.postimg.cc/kgRVmdg9/Untitled638-20260620200044.png" width="150" align="center">
+<img src="https://i.postimg.cc/kXF1vkds/Untitled638-20260620195940.png" width="100" align="center"> ⠀⠀ <img src="https://i.postimg.cc/kgRVmdg9/Untitled638-20260620200044.png" width="125" align="center">
