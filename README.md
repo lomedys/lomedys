@@ -1,11 +1,11 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=puppyDolls&color=6A4544&label=♡(　-´ω`-)⠀&style=plastic) ⠀ ![](https://i.postimg.cc/9QxmN6vj/7wialz.gif)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=puppyDolls&color=DECEB3&label=♡(　-´ω`-)⠀&style=plastic) ⠀ ![](https://i.postimg.cc/9QxmN6vj/7wialz.gif)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.postimg.cc/9fD7HJxb/Untitled653-20260627071002.png)ㅤ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.postimg.cc/L6KqQBcd/Untitled661-20260709091250.png)ㅤ 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅅ `͈ 𓏼 )ა⠀⠀
-[<img src="https://i.postimg.cc/8zwcgJrT/Untitled652-20260626234738.png" width="70" align="center">](https://rentry.co/hopsite)⠀⠀⠀⠀⠀⠀⠀⠀⠀ [<img src="https://i.postimg.cc/RFJZtgs2/Untitled652-20260626234813.png" width="105" align="center">](https://rentry.co/sunflowergardener)
+[<img src="https://i.postimg.cc/RZJDCmPX/Untitled667-20260709092217.png" width="120" align="center">](https://rentry.co/hopsite)⠀⠀⠀⠀⠀⠀⠀⠀⠀ [<img src="https://i.postimg.cc/C17vrx1V/Untitled667-20260709092149.png" width="120" align="center">](https://rentry.co/sunflowergardener)
 
