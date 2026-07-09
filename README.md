@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=puppyDolls&color=DECEB3&label=♡(　-´ω`-)⠀&style=plastic) ⠀ <img src="https://i.postimg.cc/d1G7JhCz/ezgif-com-gif-maker-(2).gif" width="30" align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=puppyDolls&color=94748A&label=♡(　-´ω`-)⠀&style=plastic) ⠀ <img src="https://i.postimg.cc/d1G7JhCz/ezgif-com-gif-maker-(2).gif" width="30" align="center">
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
