@@ -7,4 +7,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀![](https://file.garden/anKN921rZXZuEaQd/Untitled731_20260809152629.png)ㅤ 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅅ `͈ 𓏼 )ა⠀⠀
- sorry not matt I don't support Zionists 
+ [fluffle.cc](https://fluffle.cc/lomedyy)⠀⠀c+h freely
