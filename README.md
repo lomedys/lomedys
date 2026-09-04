@@ -15,28 +15,5 @@
 ⠀
 ⠀
 ⠀
-⠀⠀⠀⠀<table align="center">
-  <tr>
-    <td align="center"><span style="color:#f3c1d9">૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა</span></td>
-    <td></td>
-    <td align="center"><span style="color:#f3c1d9">a</span></td>
-    <td align="center">heart</td>
-    <td align="center"><span style="color:#f3c1d9">as</span></td>
-  </tr>
 
-  <tr>
-    <td></td>
-    <td align="center"><span style="color:#f3c1d9">soft</span></td>
-    <td></td>
-    <td></td>
-    <td></td>
-  </tr>
-
-  <tr>
-    <td align="center"><span style="color:#777">ᴍɪʟ</span></td>
-    <td align="center"><span style="color:#f3c1d9">as</span></td>
-    <td align="center">bunny</td>
-    <td align="center"><span style="color:#f3c1d9">fur</span></td>
-    <td align="center"><span style="color:#f3c1d9">つ</span></td>
-  </tr>
-   </table>
+  n
