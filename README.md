@@ -2,7 +2,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ![](https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203955.png) 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203658.png" width="200" align="center"> 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203658.png" width="300" align="center"> 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅅ `͈ 𓏼 )ა⠀⠀
  [fluffle.cc](https://fluffle.cc/lomedy)⠀⠀c+h freely
