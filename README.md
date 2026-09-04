@@ -7,7 +7,7 @@
 
 
 
-⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203658.png" width="300" align="center"> 
+⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203658.png" width="300" align="left"> 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅅ `͈ 𓏼 )ა⠀⠀
  [fluffle.cc](https://fluffle.cc/lomedy)⠀⠀c+h freely
