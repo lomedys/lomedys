@@ -10,13 +10,13 @@
 ⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203658.png" width="300" align="left"> 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
- [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210850.png" width="100" align="right">](https://fluffle.cc/lomedy) ⠀⠀  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210939.png" width="100" align="left">](https://pronouns.cc/@lomedy.)
+ [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210850.png" width="100" align="right">](https://fluffle.cc/lomedy) ⠀⠀  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210939.png" width="100" align="right">](https://pronouns.cc/@lomedy.)
 ⠀
 ⠀
 ⠀
 ⠀
 
-  <table align="center">
+  <table align="right">
 <tr>
 <td>
 
@@ -24,8 +24,6 @@
 ㅅ `͈ 𓏼 )ა
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <span>c+h</span>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-with me
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 freely
 </p>
@@ -39,11 +37,11 @@ freely
 &nbsp;&nbsp;&nbsp;&nbsp;
 bmf
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-im
+i
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-lonely
+dont
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-asf
+bite
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
  𓏽⠀⠀ 𓈒⠀
 </p>
