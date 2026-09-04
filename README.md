@@ -3,7 +3,7 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203955.png" width="500" align="center">⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203955.png)⠀⠀
 
 
 
