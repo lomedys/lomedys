@@ -11,3 +11,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210850.png" width="100" align="right">](https://fluffle.cc/lomedy) ⠀⠀  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210939.png" width="100" align="left">](https://pronouns.cc/@lomedy.)
+⠀
+⠀
+⠀
+⠀
+⠀⠀⠀⠀c+h freely   ♡   bmf i don't bite plssss
