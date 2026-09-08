@@ -7,7 +7,7 @@
 
 
 
-⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203658.png" width="300" align="left"> 
+⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260908140917.png" width="300" align="left"> 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
 ⠀
