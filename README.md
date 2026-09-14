@@ -40,7 +40,8 @@ only come those who wait
 ⠀
 <details>
 <summary>my links</summary>
-[<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210850.png" width="85" align="right">](https://fluffle.cc/lomedy) ⠀⠀  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210939.png" width="85" align="right">](https://pronouns.cc/@lomedy.)
+
+  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210850.png" width="85" align="right">](https://fluffle.cc/lomedy) ⠀⠀  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210939.png" width="85" align="right">](https://pronouns.cc/@lomedy.)
 </details>
 ⠀
 
@@ -48,7 +49,8 @@ only come those who wait
 ⠀
 <details>
 <summary>problematic gcs</summary>
-lcgc
+
+  lcgc
 [@owlstice](https://github.com/owlstice) [@starfelltraveler](https://github.com/starfelltraveler) [@childofsuns](https://github.com/childofsuns)⠀◠◠⠀ 
 ⠀
 ecgc
