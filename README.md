@@ -44,7 +44,8 @@ only come those who wait
 <details>
 <summary>oomfies!</summary>
 
-wip
+  ♡ノ°⠀lcgc @owlstice @starfelltraveler @childofsuns ⠀◠◠⠀ 
+  ecgc @valkkiez @theothegrapelover @unperfectionism @pawfie @bibinify @Iloveclairoshade ⠀⠀( + snel, souji ) 
 
 </details>
 
