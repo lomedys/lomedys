@@ -13,21 +13,21 @@
 <p align="left">
 <img src="https://file.garden/anKN921rZXZuEaQd/ezgif.com-gif-maker%20(4).gif" width="20" align="left"> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<span>you</span>
+<span>i believe</span>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-and
+in
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-me
+good
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-are 
+things
 </p>
 <p align="left">
 &nbsp;&nbsp;&nbsp;&nbsp;
-meant
+only comes
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-to
+those
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-be!
+who wait
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored3_20260914133939.png" width="20" align="right"> 
 </p>
