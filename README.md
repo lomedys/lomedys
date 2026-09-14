@@ -11,9 +11,9 @@
 <td>
 
 <p align="left">
-<img src="https://file.garden/anKN921rZXZuEaQd/ezgif.com-gif-maker%20(4).gif" width="20" align="left"> 
+⠀
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<span>⠀</span>
+<span><img src="https://file.garden/anKN921rZXZuEaQd/ezgif.com-gif-maker%20(4).gif" width="20" align="center"> </span>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 I believe in good things
 </p>
