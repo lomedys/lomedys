@@ -29,4 +29,14 @@ only come those who wait
 </table>
 
 
+
+<details>
+<summary>my links</summary>
+
+wip
+
+</details>
+
+
+
 ![](https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131729.png) 
