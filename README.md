@@ -29,10 +29,6 @@ only come those who wait
 </table>
 ⠀
 ⠀
-⠀
-
-⠀
-⠀
 <details>
 <summary>my links</summary>
 
