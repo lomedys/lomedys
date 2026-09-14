@@ -42,13 +42,13 @@ only come those who wait
 ⠀
 ⠀
 <details>
-<summary>oomfies!</summary>
+<summary>problematic gcs</summary>
 
 lcgc
 [@owlstice](https://github.com/owlstice) [@starfelltraveler](https://github.com/starfelltraveler) [@childofsuns](https://github.com/childofsuns)⠀◠◠⠀ 
 ⠀
 ecgc
-@valkkiez @theothegrapelover @unperfectionism @pawfie @bibistry @Iloveclairoshade ⠀⠀( + snel, souji ) 
+[@valkkiez](https://github.com/valkkiez) [@theothegrapelover](https://github.com/theothegrapelover) [@unperfectionism](https://github.com/unperfectionism) [@pawfie](https://github.com/pawfie) [@bibistry](https://github.com/bibistry) [@Iloveclairoshade](https://github.com/Iloveclairoshade) ⠀⠀( + snel, souji ) 
 
 </details>
 
