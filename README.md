@@ -37,7 +37,7 @@ only come those who wait
 ⠀
 ⠀
 <details>
-<summary>problematic gcs</summary>
+<summary>problematic people</summary>
 
   lcgc
 [@owlstice](https://github.com/owlstice) [@starfelltraveler](https://github.com/starfelltraveler) [@childofsuns](https://github.com/childofsuns)⠀◠◠⠀ 
