@@ -6,7 +6,7 @@
 <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131011.png" width="300" align="left"> 
 
 
-<table align="center">
+<table align="left">
 <tr>
 <td>
 
@@ -21,7 +21,7 @@ me
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 are 
 </p>
-<p align="center">
+<p align="left">
 &nbsp;&nbsp;&nbsp;&nbsp;
 meant
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
