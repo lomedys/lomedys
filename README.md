@@ -29,7 +29,7 @@ to
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 be!
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-e
+<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored3_20260914133939.png" width="20" align="right"> 
 </p>
 
 </td>
