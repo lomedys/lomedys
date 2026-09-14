@@ -32,12 +32,12 @@ only come those who wait
 ⠀
 ⠀
 ⠀
-<links>
+<details>
 <summary>my links</summary>
 
 wip
 
-</links>
+</details>
 
 
 
