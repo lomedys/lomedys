@@ -19,9 +19,7 @@ good things
 </p>
 <p align="left">
 &nbsp;&nbsp;&nbsp;&nbsp;
-only comes
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-those who wait
+only come those who wait
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored3_20260914133939.png" width="20" align="right"> 
 </p>
