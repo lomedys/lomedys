@@ -18,13 +18,9 @@ e
 and
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 me
-</p>
-
-<p align="left">
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 are 
 </p>
-
 <p align="center">
 &nbsp;&nbsp;&nbsp;&nbsp;
 meant
