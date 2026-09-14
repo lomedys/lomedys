@@ -6,11 +6,11 @@
 <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131011.png" width="300" align="left"> 
 
 
-<table align="left">
+<table align="center">
 <tr>
 <td>
 
-<p align="left">
+<p align="center">
 ⠀
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <span><img src="https://file.garden/anKN921rZXZuEaQd/ezgif.com-gif-maker%20(4).gif" width="20" align="center"> </span>
