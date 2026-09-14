@@ -27,15 +27,17 @@ only come those who wait
 </td>
 </tr>
 </table>
-
-
-
-<details>
+⠀
+⠀
+⠀
+⠀
+⠀
+<links>
 <summary>my links</summary>
 
 wip
 
-</details>
+</links>
 
 
 
