@@ -2,7 +2,7 @@
 ⠀⠀⠀⠀⠀⠀⠀
 
 
-<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131716.png" width="300" align="left"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+![](https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131716.png) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131011.png" width="300" align="left"> 
 
 
@@ -37,4 +37,4 @@ be!
 </table>
 
 
-<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131729.png" width="300" align="left"> 
+![](https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131729.png) 
