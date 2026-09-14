@@ -13,9 +13,9 @@
 <p align="left">
 <img src="https://file.garden/anKN921rZXZuEaQd/ezgif.com-gif-maker%20(4).gif" width="20" align="left"> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<span>i believe in</span>
+<span>⠀</span>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-good things
+I believe in good things
 </p>
 <p align="left">
 &nbsp;&nbsp;&nbsp;&nbsp;
