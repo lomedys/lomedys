@@ -44,8 +44,11 @@ only come those who wait
 <details>
 <summary>oomfies!</summary>
 
-  ♡ノ°⠀lcgc @owlstice @starfelltraveler @childofsuns ⠀◠◠⠀ 
-  ecgc @valkkiez @theothegrapelover @unperfectionism @pawfie @bibinify @Iloveclairoshade ⠀⠀( + snel, souji ) 
+lcgc
+[@owlstice](https://github.com/owlstice) [@starfelltraveler](https://github.com/starfelltraveler) [@childofsuns](https://github.com/childofsuns)⠀◠◠⠀ 
+⠀
+ecgc
+@valkkiez @theothegrapelover @unperfectionism @pawfie @bibistry @Iloveclairoshade ⠀⠀( + snel, souji ) 
 
 </details>
 
