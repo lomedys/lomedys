@@ -17,11 +17,11 @@
 &nbsp;&nbsp;
 $${\color{#E6D199}𝗂}$$ $${\color{#DCB96F}𝖻𝖾𝗅𝗂𝖾𝗏𝖾}$$ $${\color{#D19C4E}𝗂𝗇}$$ $${\color{#C97C40}𝗀𝗈𝗈𝖽}$$ $${\color{#B75B36}𝗍𝗁𝗂𝗇𝗀𝗌}$$
 </p>
-<p align="left">
+<p align="𝗋𝗂𝗀𝗁𝗍">
 &nbsp;&nbsp;&nbsp;&nbsp;
 $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾𝗌}$$ $${\color{#733F2D}𝗍𝗁𝗈𝗌𝖾}$$ $${\color{#9A4934}𝗐𝗁𝗈}$$ $${\color{#B75B36}𝗐𝖺𝗂𝗍}$$
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored3_20260914133939.png" width="25" align="right"> 
+<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored3_20260914133939.png" width="2𝟢" align="right"> 
 </p>
 
 </td>
