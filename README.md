@@ -35,7 +35,7 @@ $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾𝗌}$$ 
 ⠀
 ⠀
 <details>
-<summary>problematic people</summary>
+<summary>$${\color{#733F2D}𝗉𝗋𝗈𝖻𝗅𝖾𝗆𝖺𝗍𝗂𝖼}$$ $${\color{#C97C40}𝗉𝖾𝗈𝗉𝗅𝖾}$$ $${\color{#E6D199}/}$$ $${\color{#D19C4E}𝗀𝖼𝗌}$$</summary>
 
   lcgc
 [@owlstice](https://github.com/owlstice) [@starfelltraveler](https://github.com/starfelltraveler) [@childofsuns](https://github.com/childofsuns)⠀◠◠⠀ 
