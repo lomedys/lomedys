@@ -19,7 +19,7 @@ $${\color{#E6D199}𝗂}$$ $${\color{#DCB96F}𝖻𝖾𝗅𝗂𝖾𝗏𝖾}$$ $${\
 </p>
 <p align="𝗋𝗂𝗀𝗁𝗍">
 &nbsp;&nbsp;&nbsp;&nbsp;
-$${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾𝗌}$$ $${\color{#733F2D}𝗍𝗁𝗈𝗌𝖾}$$ $${\color{#9A4934}𝗐𝗁𝗈}$$ $${\color{#B75B36}𝗐𝖺𝗂𝗍}$$
+$${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾}$$ $${\color{#733F2D}𝗍𝗈}$$ $${\color{#9A4934}𝗍𝗁𝗈𝗌𝖾}$$ $${\color{#B75B36}𝗐𝗁𝗈}$$ $${\color{#C97C40}𝗐𝖺𝗂𝗍}$$
 </p>
 
 </td>
@@ -35,7 +35,7 @@ $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾𝗌}$$ 
 ⠀
 ⠀
 <details>
-<summary>$${\color{#733F2D}𝗉𝗋𝗈𝖻𝗅𝖾𝗆𝖺𝗍𝗂𝖼}$$ $${\color{#C97C40}𝗉𝖾𝗈𝗉𝗅𝖾}$$ $${\color{#E6D199}/}$$ $${\color{#D19C4E}𝗀𝖼𝗌}$$</summary>
+<summary>⠀⠀ $${\color{#733F2D}𝗉𝗋𝗈𝖻𝗅𝖾𝗆𝖺𝗍𝗂𝖼}$$ $${\color{#C97C40}𝗉𝖾𝗈𝗉𝗅𝖾}$$ $${\color{#E6D199}/}$$ $${\color{#D19C4E}𝗀𝖼𝗌}$$</summary>
 
   $${\color{#DCB96F}lcgc}$$
 [@owlstice](https://github.com/owlstice)⠀
