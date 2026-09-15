@@ -28,7 +28,7 @@ $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾𝗌}$$ 
 ⠀
 ⠀
 <details>
-<summary>my links</summary>
+<summary>$${\color{#E6D199}⦂　˛　}$$ $${\color{#D19C4E}𝗅𝖾𝖺𝗋𝗇}$$ $${\color{#B75B36}𝖺𝖻𝗈𝗎𝗍}$$ $${\color{#9A4934}𝗆𝖾!}$$</summary>
 
   [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210850.png" width="85" align="right">](https://fluffle.cc/lomedy) ⠀⠀  [<img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored_20260904210939.png" width="85" align="right">](https://pronouns.cc/@lomedy.)
 </details>
