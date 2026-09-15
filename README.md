@@ -42,6 +42,8 @@ $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾}$$ $${\
 ⠀[@starfelltraveler](https://github.com/starfelltraveler)⠀⠀[@childofsuns](https://github.com/childofsuns)⠀◠◠⠀
 $${\color{#DCB96F}ecgc}$$
 [@valkkiez](https://github.com/valkkiez)⠀⠀[@theothegrapelover](https://github.com/theothegrapelover)⠀[@pawfie](https://github.com/pawfie)⠀⠀[@unperfectionism](https://github.com/unperfectionism)⠀⠀[@bibistry](https://github.com/bibistry)⠀⠀[@Iloveclairoshade](https://github.com/Iloveclairoshade) ⠀⠀⠀⠀⠀⠀( + snel, taro ) 
+⠀
+theyre not actually problematic oke
 </details>
 
 
