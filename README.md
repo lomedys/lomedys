@@ -14,7 +14,7 @@
 ⠀
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <span><img src="https://file.garden/anKN921rZXZuEaQd/ezgif.com-gif-maker%20(4).gif" width="20" align="center"> </span>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 $${\color{#E6D199}𝗂}$$ $${\color{#DCB96F}𝖻𝖾𝗅𝗂𝖾𝗏𝖾}$$ $${\color{#D19C4E}𝗂𝗇}$$ $${\color{#C97C40}𝗀𝗈𝗈𝖽}$$ $${\color{#B75B36}𝗍𝗁𝗂𝗇𝗀𝗌}$$
 </p>
 <p align="left">
