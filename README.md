@@ -37,16 +37,15 @@ $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾𝗌}$$ 
 <details>
 <summary>$${\color{#733F2D}𝗉𝗋𝗈𝖻𝗅𝖾𝗆𝖺𝗍𝗂𝖼}$$ $${\color{#C97C40}𝗉𝖾𝗈𝗉𝗅𝖾}$$ $${\color{#E6D199}/}$$ $${\color{#D19C4E}𝗀𝖼𝗌}$$</summary>
 
-  lcgc
-[@owlstice](https://github.com/owlstice) [@starfelltraveler](https://github.com/starfelltraveler) [@childofsuns](https://github.com/childofsuns)⠀◠◠⠀ 
-⠀
-ecgc
-[@valkkiez](https://github.com/valkkiez) [@theothegrapelover](https://github.com/theothegrapelover) [@unperfectionism](https://github.com/unperfectionism) [@pawfie](https://github.com/pawfie) [@bibistry](https://github.com/bibistry) [@Iloveclairoshade](https://github.com/Iloveclairoshade) ⠀⠀( + snel, souji ) 
+  $${\color{#DCB96F}lcgc}$$
+[@owlstice](https://github.com/owlstice)⠀✦⠀[@starfelltraveler](https://github.com/starfelltraveler)⠀✦⠀[@childofsuns](https://github.com/childofsuns)⠀◠◠⠀
+$${\color{#DCB96F}ecgc}$$
+[@valkkiez](https://github.com/valkkiez)⠀✦⠀[@theothegrapelover](https://github.com/theothegrapelover)⠀✦⠀[@unperfectionism](https://github.com/unperfectionism)⠀✦⠀[@pawfie](https://github.com/pawfie)⠀✦⠀[@bibistry](https://github.com/bibistry)⠀✦⠀[@Iloveclairoshade](https://github.com/Iloveclairoshade) ⠀⠀⠀⠀⠀⠀( + snel, taro ) 
 </details>
 
 
 
 
-ㅤㅤ![](https://komarev.com/ghpvc/?username=puppyDolls&color=BCA27B&label=♡(　-´ω`-)⠀&style=plastic) ⠀ <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203120.png" width="40" align="center">
+ㅤㅤ⠀⠀![](https://komarev.com/ghpvc/?username=puppyDolls&color=BCA27B&label=♡(　-´ω`-)⠀&style=plastic) ⠀ <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203120.png" width="40" align="center">
 
 ![](https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131729.png) 
