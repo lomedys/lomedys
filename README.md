@@ -48,6 +48,6 @@ $${\color{#DCB96F}oomfie}$$ [jen](https://github.com/KALININGRAD-OBLAST)⠀⠀[f
 
 
 
-ㅤㅤ⠀⠀![](https://komarev.com/ghpvc/?username=puppyDolls&color=BCA27B&label=♡(　-´ω`-)⠀&style=plastic) ⠀ <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203120.png" width="40" align="center">
+ㅤㅤ⠀⠀![](https://komarev.com/ghpvc/?username=puppyDolls&color=D19C4E&label=sunflowers&style=plastic) ⠀ <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203120.png" width="40" align="center">
 
 ![](https://file.garden/anKN921rZXZuEaQd/Untitled753_Restored2_20260914131729.png) 
