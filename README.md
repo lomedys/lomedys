@@ -35,15 +35,14 @@ $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾}$$ $${\
 ⠀
 ⠀
 <details>
-<summary>⠀⠀ $${\color{#733F2D}𝗉𝗋𝗈𝖻𝗅𝖾𝗆𝖺𝗍𝗂𝖼}$$ $${\color{#C97C40}𝗉𝖾𝗈𝗉𝗅𝖾}$$ $${\color{#E6D199}/}$$ $${\color{#D19C4E}𝗀𝖼𝗌}$$</summary>
+<summary>⠀⠀ $${\color{#733F2D}𝖼𝗎𝗍𝖾}$$ $${\color{#C97C40}𝗀𝖼𝗌}$$ $${\color{#E6D199}+}$$ $${\color{#D19C4E}𝗈𝗈𝗆𝖿𝗂𝖾}$$</summary>
 
   $${\color{#DCB96F}lcgc}$$
-[@owlstice](https://github.com/owlstice)⠀
-⠀[@starfelltraveler](https://github.com/starfelltraveler)⠀⠀[@childofsuns](https://github.com/childofsuns)⠀◠◠⠀
+[cayleb](https://github.com/owlstice)⠀
+⠀[haruki](https://github.com/starfelltraveler)⠀⠀[alnilam](https://github.com/childofsuns)⠀◠◠⠀
 $${\color{#DCB96F}ecgc}$$
-[@valkkiez](https://github.com/valkkiez)⠀⠀[@theothegrapelover](https://github.com/theothegrapelover)⠀[@pawfie](https://github.com/pawfie)⠀⠀[@unperfectionism](https://github.com/unperfectionism)⠀⠀[@bibistry](https://github.com/bibistry)⠀⠀[@Iloveclairoshade](https://github.com/Iloveclairoshade) ⠀⠀⠀⠀⠀⠀( + snel, taro ) 
-⠀
-theyre not actually problematic oke
+[valk](https://github.com/valkkiez)⠀⠀[theo](https://github.com/theothegrapelover)⠀⠀[misha](https://github.com/pawfie)⠀⠀[izorlyue](https://github.com/unperfectionism)⠀⠀[bibi](https://github.com/bibistry)⠀⠀[miku](https://github.com/Iloveclairoshade) ⠀⠀( + snel, taro )⠀◠◠⠀
+$${\color{#DCB96F}oomfie}$$ [jen](https://github.com/KALININGRAD-OBLAST)⠀⠀[fei](https://github.com/100bottlesofglue)⠀⠀[mafi](https://github.com/metalcardbot) 
 </details>
 
 
