@@ -42,7 +42,7 @@ $${\color{#503327}𝗈𝗇𝗅𝗒}$$ $${\color{#5D3627}𝖼𝗈𝗆𝖾}$$ $${\
 ⠀[haruki](https://github.com/starfelltraveler)⠀⠀[alnilam](https://github.com/childofsuns)⠀◠◠⠀
 $${\color{#DCB96F}ecgc}$$
 [valk](https://github.com/valkkiez)⠀⠀[theo](https://github.com/theothegrapelover)⠀⠀[misha](https://github.com/pawfie)⠀⠀[izorlyue](https://github.com/unperfectionism)⠀⠀[bibi](https://github.com/bibistry)⠀⠀[miku](https://github.com/Iloveclairoshade) ⠀⠀( + snel, taro )⠀◠◠⠀
-$${\color{#DCB96F}oomfie}$$ [jen](https://github.com/KALININGRAD-OBLAST)⠀⠀[fei](https://github.com/100bottlesofglue)⠀⠀[mafi](https://github.com/metalcardbot) 
+$${\color{#DCB96F}oomfie}$$ [jen](https://github.com/KALININGRAD-OBLAST)⠀⠀[fei](https://github.com/100bottlesofglue)⠀⠀[mafi](https://github.com/metalcardbot)⠀⠀[grian](https://github.com/clownfoe)⠀⠀rosie⠀⠀hal
 </details>
 
 
