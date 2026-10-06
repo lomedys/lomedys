@@ -50,3 +50,8 @@ $${\color{#DCB96F}oomfie}$$ [jen](https://github.com/KALININGRAD-OBLAST)⠀⠀[f
 
 ㅤㅤ⠀⠀![](https://komarev.com/ghpvc/?username=puppyDolls&color=D19C4E&label=sunflowers&style=plastic) ⠀ <img src="https://file.garden/anKN921rZXZuEaQd/Untitled753_20260904203120.png" width="40" align="center">
 
+<details>
+<summary>$${\color{#E6D199}⦂　˛　}$$ $${\color{#D19C4E}𝗈𝗀}$$ $${\color{#B75B36}𝗅𝗈𝗆𝖾𝖽𝗒}$$ $${\color{#9A4934}𝖿𝖺𝗇}$$</summary>
+
+  <img src="https://file.garden/anKN921rZXZuEaQd/Untitled839_20261006195140.png" width="200" align="right">
+</details>
